@@ -2,7 +2,7 @@
 
 Are you looking for an innovative way to make learning fun and interactive? Look no further! **Blooket Games** is a dynamic platform that combines education and entertainment, creating a perfect environment for students to engage, compete, and learn simultaneously. 
 
-## <a href="https://classroom-6x-unblocked.github.io/">👉 Blooket Play 👈</a>
+## <a href="https://izigames.net/">👉 Blooket Play 👈</a>
 
 ![Blooket Play](https://github.com/user-attachments/assets/147de36a-dafb-44fa-9c0b-07a7ea639ff3)
 
@@ -18,7 +18,7 @@ Blooket is an online game-based learning platform designed to make education int
 
 ### 1. **Sign Up and Log In**
 To start playing Blooket, both teachers and students need to sign up. Here’s how:
-- **Teachers**: Sign up at [Blooket Play](https://classroom-6x-unblocked.github.io/) to create or find quizzes.
+- **Teachers**: Sign up at [Blooket Play](https://izigames.net/) to create or find quizzes.
 - **Students**: Join a game using a unique game code provided by the teacher.
 
 ### 2. **Choose a Game Mode**
